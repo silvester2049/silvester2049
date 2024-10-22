@@ -2,7 +2,7 @@
 - 👀 I’m interested in back end developing
 - 🌱 I’m currently learning computer science and cyber security
 - 💞️ I’m looking to collaborate on back end developing
-- 📫 How to reach me  whatsapp +254703852790  instagram @_adrenaline-vibes
+- 📫 How to reach me  whatsapp +254703852790  instagram @_adrenaline_vibes
 - 😄 Pronouns: mr/he
 - ⚡ Fun fact: 
 
